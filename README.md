@@ -10,6 +10,8 @@
 
 - 👨‍💻 All of my projects are available [here](https://moonweaver.de)
 
+- ✨ You can find my private profile [here](https://github.com/Vamerya)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
